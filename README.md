@@ -2,7 +2,7 @@
 - 👀 I’m interested in travelling, football, cricket and many more sports
 - 🌱 I’m currently learning Arabic
 - 💞️ I’m looking to collaborate on Edtech
-- 📫 How to reach me wa.me/918927163740
+- 📫 How to reach me: [Whatsapp +918927163740](wa.me/918927163740)
 
 <!---
 sham-flow/sham-flow is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
